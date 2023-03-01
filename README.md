@@ -4,3 +4,4 @@ Good for you, I'm worthless and my project were fully volunteer-based either for
 ## I'm here just for fun, if you've travelled this far by coincidence or intend, then I'd suggest checking out other repositories other than mine
 *They're better than some weird sh!t I've done*
 # Thank you and Goodbye!
+![comic](https://pbs.twimg.com/media/FqFrDCbaAAAZ8p5?format=jpg&name=large)
